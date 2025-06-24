@@ -1,7 +1,7 @@
 Avi Sethuraman, University of Maryland '29, Gilman School '25
 
 
-[Spotify](https://open.spotify.com/user/hdgmh466l72us55fm9nkmvgur?si=b0930eef0cbe4c0b) | [Steam](https://steamcommunity.com/profiles/76561199054575728/) | [Linkedin](https://www.linkedin.com/in/avi-sethuraman-387bb4349/)
+[Spotify](https://open.spotify.com/user/hdgmh466l72us55fm9nkmvgur?si=b0930eef0cbe4c0b) | [Steam](https://steamcommunity.com/profiles/76561199054575728/) | [Linkedin](https://www.linkedin.com/in/avi-sethuraman-387bb4349/) | [Instagram](https://www.instagram.com/avnase619/) | [Website](avisethuraman.github.io)
 <!--
 **AviSethuraman/AviSethuraman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
